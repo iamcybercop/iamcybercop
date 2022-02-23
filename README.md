@@ -1,7 +1,7 @@
-# Hi I am Aryan Saxena
+# Hi iamcybercop
 <br>
 
-- 👋 Hi, I’m @n3max
+- 👋 
 - 👀 I’m interested in EVERYTHING
 - 🌱 I’m currently learning EVERYTHING
 - 💞️ I’m looking to collaborate on EVERYTHING and with ANYBODY
